@@ -6,10 +6,31 @@
 <img width="650" alt="2" src="https://github.com/user-attachments/assets/09908b9a-b472-40db-8465-072e92bbcb92">
 <br><br>
 
-`RUEK` ˖ `HE / HIM` ˖ `INTJ` ˖ `3W4`
+<div align="center">
+
+`he / him` · `chud` · `manipulator` · `papi` · `kiss me`
 
 " *I'll take you to the moon! I promise!* "
+
+</div>
+
+<details>
+<summary>Click 4 more, mysteriosuly tho.</summary>
+
 <br>
+
+Follow my main at [**Asphyxixate**](https://github.com/Asphyxixate), man.
+
+I'm barely online on Ponytown or socials anymore, I tend to disappear bcuz of that.  
+I've stopped being a chud, so that's really it.  
+I'm mainly into anime, music, art & my hyperfixations.
+
+**My biggest interests atm**
+
+`Bleach` `Chainsaw Man` `Gokurakugai` `Cyberpunk: Edgerunners`  
+`Tokyo Ghoul` `Jujutsu Kaisen`
+
+</details>
 
 <img width="650" alt="3" src="https://github.com/user-attachments/assets/98677d58-5f7c-4a9a-9b75-b4c1e4c7896c">
 <br>

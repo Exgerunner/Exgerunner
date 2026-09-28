@@ -8,7 +8,7 @@
 
 <div align="center">
 
-`he / him` · `chud` · `manipulator` · `papi` · `kiss me`
+`Male` · `chud` · `manipulator` · `papi` · `kiss me`
 
 " *I'll take you to the moon! I promise!* "
 
